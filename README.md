@@ -7,3 +7,4 @@
 - Estudante 👨‍🎓
 
 ![](https://media.tenor.com/BFQCG9GI48AAAAAi/neymar-with-flower-neymar.gif)
+![](https://media.tenor.com/7Cgir-Mnt0EAAAAC/yuri-alberto-yuri.gif)
